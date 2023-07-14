@@ -1,0 +1,8 @@
+# 2fas.me
+2FAS
+2FAS.ME - 2FA solve secrets key,  2-Factor Authentication Code - Keep your 2FA Secrets Safe
+https://2fas.me
+2fas_me
+30 Tân Sơn, Phường 15, Tân Bình, Thành phố Hồ Chí Minh, Việt Nam
+Nam
+0986863472
